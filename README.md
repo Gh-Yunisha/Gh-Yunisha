@@ -1,4 +1,4 @@
-### Hi there, I'm Yuna!
+### Hi there, I'm Yunisha!
 
 Welcome to my space on GitHub. I am here to explore, build, and document my journey in tech. 
 
